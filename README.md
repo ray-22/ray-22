@@ -9,7 +9,6 @@
 
 <h3 align="left">📱 About Me:</h3>
 
-- Senior Year Student 🎓
 - Aeromodeller ✈️
 - Artist [@unraylism](https://www.instagram.com/unraylism/) 🖌️
 - Wake Up, Hustle, Repeat 💪
